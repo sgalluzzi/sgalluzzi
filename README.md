@@ -1,3 +1,6 @@
+
+![68AB4BAD-2851-4C8E-B237-89D63A42B123_1_105_c](https://github.com/sgalluzzi/sgalluzzi/assets/89170735/07ab974a-b56f-4883-8b37-97f41f4d4279)
+
 ### Hi there 👋 I'm Seth Galluzzi
 
 I graduated from Penn State University with a Bachelors in Mathematics Education in 2014. I spent 7 years in the math classroom helping students gain an understanding of high level math concepts and cultivating a belief in themselves to help them reach their goals. During my time as an educator I was a professional learning community lead, a teacher mentor, a basketball coach, and I created an after school tutoring program.  I also collaborated with other teachers to create an SAT prep course that helped students become more comfortable with the testing process and increased students' test scores.
