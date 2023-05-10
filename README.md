@@ -1,4 +1,4 @@
-![2E99FE5A-1D4E-4A3B-B67F-61250DD9F5EE_1_105_c](https://github.com/sgalluzzi/sgalluzzi/assets/89170735/6924c841-846a-49ce-928d-14c00e3b559f)
+![image](https://github.com/sgalluzzi/sgalluzzi/assets/89170735/ce33119d-38e1-4bc6-8e61-e28e8a30a8c5)
 
 ### Hi there 👋 I'm Seth Galluzzi
 
